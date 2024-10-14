@@ -1,0 +1,1 @@
+I wasn't sure how to extract the 4 images from the gif provided in the instructions, so I just screenshotted them and uploaded them to imgur. I just wanted to add this in here as a little note in case you were curious as to why the images came from imgur.
